@@ -1,4 +1,4 @@
-# Hi, I'm Riho (ES7AAZ) 📻
+# Hi, I'm Riho (ES7AAZ)
 
 Amateur radio enthusiast and developer from Estonia. 🇪🇪
 
